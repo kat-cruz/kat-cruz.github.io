@@ -1,0 +1,14 @@
+---
+title: Post 01: The beginning
+layout: post
+--- 
+
+Welp, first blog post here! I never, ever imagined myself as the blogger type - mainly because I feel like I'm a bit to cynical - much too sarcastic, really - to be writing a blog. 
+I also, despite my dreams of being a spelling bee, haven't cracked to code on grammar and spelling correctley, which may have limited my writing to a certain extent. 
+So yes, while I'm taking the great dare to blog, I'm not here to discuss my favorite vegan gluten-free sugar-free - 
+happiness-free really - recipe, or review an obscure makeup item you didn't know you didn't need - nay, I'm here to talk economics, politics, science, and bizzare mixture of the three complimented 
+with an extra je ne sais quoi that will keep things spicy. 
+
+You're welcome to join along for the ride of pursing life's greatest mysteries with me, and given data avaiblility, what some of that may traslate to in numbers, in tangible, undeniable facts. 
+
+I would say buckle up, but as a cynic I don't beleive in seat belts, or anything really, save for the power of God and bleach (the only cleaning product I trust.) 
